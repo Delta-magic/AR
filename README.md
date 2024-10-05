@@ -1,1 +1,1 @@
-Delta Magic Co
+Delta Magic
